@@ -1,1 +1,0 @@
-The official website of cachorro alemão 🐺 💻 🚀
